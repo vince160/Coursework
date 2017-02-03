@@ -1,2 +1,2 @@
-Alex Vincent
+Alex Vincent  
 Email: vince160@umn.edu
